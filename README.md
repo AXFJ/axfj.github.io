@@ -1,2 +1,2 @@
-# beautiful.github.io
-Pure Beauty
+# axfj.github.io
+AXFJ's personal pages
